@@ -2,8 +2,12 @@ Hi there 👋
 
 
 - 🔭 I’m currently master student@ucd
-- 🌱 I’m currently learning computer science
-- 🤔 I’m looking for help with 
-- 📫 How to reach me: IG:https://www.instagram.com/shiscli/
+- 🌱 Now focus on Computer Science(Funky and serious coder
+- 🌍 Sooo interested in Environmental Science and related (Ecology etc.
+- 🧙‍♀️ Dream to be a witch
+- 🛹 Amateur skater
+- 📫 How to reach me: 
+-       IG:https://www.instagram.com/shiscli/
+-       
 
 
