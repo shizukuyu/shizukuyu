@@ -7,7 +7,7 @@ Hi there 👋
 - 🧙‍♀️ Dream to be a witch
 - 🛹 Amateur skater
 - 📫 How to reach me: 
--       IG:https://www.instagram.com/shiscli/
--       
+-       🔮website:
+-       📧email：swjin420@gmail.com, suwen.jin@ucdconnect.ie     
 
 
