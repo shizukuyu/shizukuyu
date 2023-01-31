@@ -7,7 +7,7 @@ Hi there 👋
 - 🧙‍♀️ Dream to be a witch
 - 🛹 Amateur skater
 - 📫 How to reach me: 
--       🔮website:
+-       🔮website:[suwen's blog][]
 -       📧email：swjin420@gmail.com, suwen.jin@ucdconnect.ie     
 
 
