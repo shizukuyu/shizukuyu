@@ -1,5 +1,6 @@
 Hi there 👋
 
+- 😊 Call me Suwen or Susan 
 - 🌱 I now focus on Computer Science(Funky and serious coder
 - 🧙‍♀️ Dream to be a witch
 - 🛹 Amateur skater
